@@ -1,0 +1,47 @@
++++
+title = "18 भाषारक्षणात् एव पारम्परिकज्ञान"
+
++++
+**भाषारक्षणात् एव पारम्परिकज्ञानराशेः अपि संरक्षणम्**
+
+**\* (सं) भुवनशर्मा **
+
+\[कस्याश्चित् भाषायाः नाशात् भाषानाशमात्रं न, अपि तु औषधादिसम्बद्धः पारम्परिकज्ञानराशिः अपि विनश्येत् । पारम्परिकं ज्ञानं रक्षणीयं चेत् अपायदशां गतानां भाषाणां रक्षणविषये अपि अध्ययनं करणीयम् ।\]
+
+एतत् दशकम् (२०२२-२०३२) ‘अन्ताराष्ट्रीयस्थलीयभाषादशक’त्वेन  आचर्यते विश्वसंस्थया । एतस्मात् स्थलीयभाषाणां संरक्षणं भवितुम् अर्हति इति विश्वसंस्थायाः चिन्तनम् । अद्यत्वे जगति ७४०० भाषाः स्युः इति परिभाव्यते । एतासु काश्चन अपायदशासमीपे सन्ति । अस्य दशकस्य समाप्त्यभ्यन्तरे ३०% भाषाः विनष्टाः भवेयुः इति अभिप्रयन्ति भाषाविज्ञानिनः । अल्पेन जनसमुदायेन उपयुज्यमानाः भाषाः एव विनाशभाजः भवन्ति ।
+
+‘कालप्रभावात् भाषाणाम् अपि अन्त्यं भवति इत्येषा सहजा प्रक्रिया । अतः कस्याश्चित् भाषायाः विनाशात् भाषाणां सङ्ख्यायां काचित् न्यूनता भवेत् नाम । ततः अन्या कापि विशेषहानिः न भवति’ इति प्रतिपादयन्ति केचन । वस्तुतः तु इतः भाषामात्रस्य हानिः न, अपि तु पारम्परिकज्ञानराशेः एव नाशः भवति । स्विझर्लेण्ड्देशीयाभ्यां ज्युरिच्विश्वविद्यालयीयाभ्यां विकासशील-जीवशास्त्रपरिसरविज्ञानविभागीयाभ्यां रोढ्रिगोकेमेट्लेरेट्-जोर्डिबस्सामै-नामकाभ्यां विज्ञानिभ्यां स्थलीयजनेषु स्थितम् औषधीयज्ञानम् अधिकृत्य यत् अध्ययनं कृतं तत् तु अवश्यं नेत्रोन्मीलकम् अस्ति ।
+
+भाषा भवति भावप्रकाशनाय । संवहनमाध्यमं सा । समुदायविशेषस्य वस्तुघटनक्रियादीन् विस्तृततया व्यक्तीकर्तुम् उपयुज्यमाना ध्वनिव्यवस्था एव भाषा नाम । ‘यदि काचित् भाषा नश्येत् तर्हि तद्गता संस्कृतिः इव तद्गतं विज्ञानम् अपि नश्येत्’ इति सप्रमाणं ज्ञापयति पूर्वोक्तम् अध्ययनम् ।
+
+यत्र जीववैविध्यस्य समृद्धिः, विशिष्टा भाषा, अपूर्वा संस्कृतिः च स्यात् तादृशान् त्रीन् प्रदेशान् चित्वा तत्रत्यानाम् ३५९७ औषधीयसस्यानां विवरणं कस्यां कस्यां भाषायाम् अस्ति इत्येतत् ताभ्यां संशोधकाभ्यां परिशीलितम् । ततः ताभ्याम् अवगतं यत् ७५% वैद्यकीयविषयाः एकस्याम् एव भाषायां सन्ति, अन्यासु भाषासु तद्विषयकं विवरणं न उपलभ्यते इति । सा च भाषा आसीत् अपायदशां गता । यदि सा भाषा नश्येत् तर्हि तद्गतं ज्ञानमपि नश्येत् एव । एतस्मात् स्पष्टं भवति यत् सस्यप्रभेदेषु विनाशदशाम् अगतवत्सु अपि, भाषायाः विनाशस्य कारणतः सस्यप्रभेदानाम् उपयोगप्रकारः अपि विनश्यति इति । एतस्य तात्पर्यं यत् जीववैविध्यस्य नाशात् यावती हानिः भवेत् ततोऽपि अधिका हानिः भवेत् भाषायाः विनाशात् इति ।
+
+मूलनिवासिनः स्वप्रदेशे स्थितानां सस्यानां विषये, तेषाम् औषधीयोपयोगविषये च विशेषज्ञानवन्तः भवन्ति । एतत् ज्ञानं तदीयभाषायां निहितं भवति । एतदेव ‘पारम्परिकज्ञानम्’ इति उच्यते । यदि केनापि कारणेन सा भाषा विनश्येत् तर्हि तद्भाषागतं ज्ञानम् अपि नश्येत् एव ननु ? अतः एव विश्वसंस्थया चिन्तितं यत् अन्ताराष्ट्रीयस्थलीयभाषादशकस्य आचरणं विधाय एतादृशं पारम्परिकज्ञानं संरक्षितुं प्रयासः विधेयः इति ।
+
+पूर्वोक्तौ संशोधकौ उत्तरामेरिका, वायव्यामेजानिया, न्यूगिनिया इत्येतेषु त्रिषु प्रदेशेषु निवसद्भिः मूलनिवासिभिः तत्प्रदेशगतानाम् औषधीयसस्यानां विषये कियत् ज्ञानम् आसादितम् अस्ति इति परिशीलितवन्तौ । ताभ्याम् अवगतं यत् ३५९७ सस्यानां विषये, तेषाम् औषधीयोपयोगविषये च ज्ञानं २३६ भाषाभाषिभिः ज्ञायते इति । तत्रापि भाषात्रये ७३%, ९१%, ८४% ज्ञानं च निहितम् अस्ति इत्येषः विशेषांशः ताभ्यां लक्षितः । अतः ताभ्यां प्रतिपादितं यत् पारम्परिकम् औषधीयं ज्ञानं रक्षणीयं चेत् भाषाः अपि अवश्यमेव रक्षणीयाः इति ।
+
+आङ्ग्लादीनां प्रबलभाषाणां प्रभावस्य विस्तारस्य च कारणतः बह्व्यः स्थलीयभाषाः उपभाषाः च नाशं प्राप्नुवत्यः सन्ति इति सातङ्कं वदन्ति भाषाविज्ञानिनः । यदि एषा एव स्थितिः अनुवर्तेत तर्हि जगति काश्चन भाषाः अवश्यमेव विनाशं प्राप्नुयुः । तदा तु तद्गतं ज्ञानम् अपि विनश्येत् एव । अतः लघुना समुदायेन उपयुज्यमानानां भाषाणां सरंक्षणविषये अवश्यमेव अवधानं देयम् । भाषायाः रक्षणं नाम तस्याः भाषायाः उपयोगस्य, तन्नाम सम्भाषणस्य, संरक्षणम् । यदि भाषा ग्रन्थमात्रस्था भवेत् तर्हि ग्रन्थानां विनाशात् भाषायाः अपि क्षीणता, विनाशः च भवेत् । ग्रन्थाः पत्रादिरूपाः भवन्ति इत्यतः कालप्रभावतः तेषां जीर्णदशा विनाशः च सहजः ।
+
+संस्कृतभाषायाम् अपि अपारं ज्ञानम् अस्ति । अपूर्वं ‘विज्ञान’ज्ञानम् अस्ति । तस्य सर्वस्य संरक्षणाय यदि अवधानं न दीयेत तर्हि जगतः एव महती हानिः भवेत् । संस्कृतस्थानां ग्रन्थानाम् अनुवादेन तत्रत्यं ज्ञानविज्ञानादीनां संरक्षणं भवितुम् अर्हति एव इति भ्रान्तिः न प्राप्तव्या । विद्यालयशिक्षणादिषु संस्कृताध्ययनाय समुचितस्य स्थानस्य परिकल्पनं, तया भाषया एव सम्भाषणे प्रवृत्तिदर्शनम्, सामान्यानां जनानां भाषायाः च आत्मीयसम्बन्धः यथा वर्धेत तथा कारणं, संस्कृतस्य विकास-प्रचार-प्रसाराय विविधयोजनानां प्रकल्पनम् इत्यादयः अनेकमुखाः प्रयत्नाः प्रचलेयुः चेदेव एषा भाषा संरक्षिता भवेत् । विषयेऽस्मिन् सर्वकारादीनां यावती पात्रता स्यात् ततोऽधिकपात्रता अस्ति संस्कृतज्ञानाम् अस्माकम् एव । किं वयं स्वस्य उत्तरदायित्वम् अवगत्य तस्य निर्वहणे बद्धादरतां दर्शयितुम् अर्हेम ?
+
+**bhAShArakShaNAt eva pAramparikaj~nAnarAsheH api saMrakShaNam**
+
+\* (saM) bhuvanasharmA
+
+\[kasyAshchit bhAShAyAH nAshAt bhAShAnAshamAtraM na, api tu auShadhAdisambaddhaH pAramparikaj~nAnarAshiH api vinashyet. pAramparikaM j~nAnaM rakShaNIyaM chet apAyadashAM gatAnAM bhAShANAM rakShaNaviShaye api adhyayanaM karaNIyam.\]
+
+etat dashakam (2022-2032) ‘antArAShTrIyasthalIyabhAShAdashaka’tvenaAcharyate vishvasaMsthayA. etasmAt sthalIyabhAShANAM saMrakShaNaM bhavitum arhati iti vishvasaMsthAyAH chintanam. adyatve jagati 7400 bhAShAH syuH iti paribhAvyate. etAsu kAshchana apAyadashAsamIpe santi. asya dashakasya samAptyabhyantare 30% bhAShAH vinaShTAH bhaveyuH iti abhiprayanti bhAShAvij~nAninaH. alpena janasamudAyena upayujyamAnAH bhAShAH eva vinAshabhAjaH bhavanti.
+
+‘kAlaprabhAvAt bhAShANAm api antyaM bhavati ityeShA sahajA prakriyA. ataH kasyAshchit bhAShAyAH vinAshAt bhAShANAM sa~NkhyAyAM kAchit nyUnatA bhavet nAma. tataH anyA kApi visheShahAniH na bhavati’ iti pratipAdayanti kechana. vastutaH tu itaH bhAShAmAtrasya hAniH na, api tu pAramparikaj~nAnarAsheH eva nAshaH bhavati. svijharleNDdeshIyAbhyAM jyurichvishvavidyAlayIyAbhyAM vikAsashIla-jIvashAstraparisaravij~nAnavibhAgIyAbhyAM roDhrigokemeTlereT-jorDibassAmai-nAmakAbhyAM vij~nAnibhyAM sthalIyajaneShu sthitam auShadhIyaj~nAnam adhikRRitya yat adhyayanaM kRRitaM tat tu avashyaM netronmIlakam asti.
+
+bhAShA bhavati bhAvaprakAshanAya. saMvahanamAdhyamaM sA. samudAyavisheShasya vastughaTanakriyAdIn vistRRitatayA vyaktIkartum upayujyamAnA dhvanivyavasthA eva bhAShA nAma. ‘yadi kAchit bhAShA nashyet tarhi tadgatA saMskRRitiH iva tadgataM vij~nAnam api nashyet’ iti sapramANaM j~nApayati pUrvoktam adhyayanam.
+
+yatra jIvavaividhyasya samRRiddhiH, vishiShTA bhAShA, apUrvA saMskRRitiH cha syAt tAdRRishAn trIn pradeshAn chitvA tatratyAnAm 3597 auShadhIyasasyAnAM vivaraNaM kasyAM kasyAM bhAShAyAm asti ityetat tAbhyAM saMshodhakAbhyAM parishIlitam. tataH tAbhyAm avagataM yat 75% vaidyakIyaviShayAH ekasyAm eva bhAShAyAM santi, anyAsu bhAShAsu tadviShayakaM vivaraNaM na upalabhyate iti. sA cha bhAShA AsIt apAyadashAM gatA. yadi sA bhAShA nashyet tarhi tadgataM j~nAnamapi nashyet eva. etasmAt spaShTaM bhavati yat sasyaprabhedeShu vinAshadashAm agatavatsu api, bhAShAyAH vinAshasya kAraNataH sasyaprabhedAnAm upayogaprakAraH api vinashyati iti. etasya tAtparyaM yat jIvavaividhyasya nAshAt yAvatI hAniH bhavet tato.api adhikA hAniH bhavet bhAShAyAH vinAshAt iti.
+
+mUlanivAsinaH svapradeshe sthitAnAM sasyAnAM viShaye, teShAm auShadhIyopayogaviShaye cha visheShaj~nAnavantaH bhavanti . etat j~nAnaM tadIyabhAShAyAM nihitaM bhavati. etadeva ‘pAramparikaj~nAnam’ iti uchyate. yadi kenApi kAraNena sA bhAShA vinashyet tarhi tadbhAShAgataM j~nAnam api nashyet eva nanu ? ataH eva vishvasaMsthayA chintitaM yat antArAShTrIyasthalIyabhAShAdashakasya AcharaNaM vidhAya etAdRRishaM pAramparikaj~nAnaM saMrakShituM prayAsaH vidheyaH iti.
+
+pUrvoktau saMshodhakau uttarAmerikA, vAyavyAmejAniyA, nyUginiyA ityeteShu triShu pradesheShu nivasadbhiH mUlanivAsibhiH tatpradeshagatAnAm auShadhIyasasyAnAM viShaye kiyat j~nAnam AsAditam asti iti parishIlitavantau. tAbhyAm avagataM yat 3597 sasyAnAM viShaye, teShAm auShadhIyopayogaviShaye cha j~nAnaM 236 bhAShAbhAShibhiH j~nAyate iti. tatrApi bhAShAtraye 73%, 91%, 84% j~nAnaM cha nihitam asti ityeShaH visheShAMshaH tAbhyAM lakShitaH. ataH tAbhyAM pratipAditaM yat pAramparikam auShadhIyaM j~nAnaM rakShaNIyaM chet bhAShAH api avashyameva rakShaNIyAH iti.
+
+A~NglAdInAM prabalabhAShANAM prabhAvasya vistArasya cha kAraNataH bahvyaH sthalIyabhAShAH upabhAShAH cha nAshaM prApnuvatyaH santi iti sAta~NkaM vadanti bhAShAvij~nAninaH. yadi eShA eva sthitiH anuvarteta tarhi jagati kAshchana bhAShAH avashyameva vinAshaM prApnuyuH. tadA tu tadgataM j~nAnam api vinashyet eva. ataH laghunA samudAyena upayujyamAnAnAM bhAShANAM saraMkShaNaviShaye avashyameva avadhAnaM deyam. bhAShAyAH rakShaNaM nAma tasyAH bhAShAyAH upayogasya, tannAma sambhAShaNasya, saMrakShaNam. yadi bhAShA granthamAtrasthA bhavet tarhi granthAnAM vinAshAt bhAShAyAH api kShINatA, vinAshaH cha bhavet. granthAH patrAdirUpAH bhavanti ityataH kAlaprabhAvataH teShAM jIrNadashA vinAshaH cha sahajaH.
+
+saMskRRitabhAShAyAm api apAraM j~nAnam asti. apUrvaM ‘vij~nAna’j~nAnam asti. tasya sarvasya saMrakShaNAya yadi avadhAnaM na dIyeta tarhi jagataH eva mahatI hAniH bhavet. saMskRRitasthAnAM granthAnAm anuvAdena tatratyaM j~nAnavij~nAnAdInAM saMrakShaNaM bhavitum arhati eva iti bhrAntiH na prAptavyA. vidyAlayashikShaNAdiShu saMskRRitAdhyayanAya samuchitasya sthAnasya parikalpanaM, tayA bhAShayA eva sambhAShaNe pravRRittidarshanam, sAmAnyAnAM janAnAM bhAShAyAH cha AtmIyasambandhaH yathA vardheta tathA kAraNaM, saMskRRitasya vikAsa-prachAra-prasArAya vividhayojanAnAM prakalpanam ityAdayaH anekamukhAH prayatnAH prachaleyuH chedeva eShA bhAShA saMrakShitA bhavet. viShaye.asmin sarvakArAdInAM yAvatI pAtratA syAt tato.adhikapAtratA asti saMskRRitaj~nAnAm asmAkam eva. kiM vayaM svasya uttaradAyitvam avagatya tasya nirvahaNe baddhAdaratAM darshayitum arhema ?
